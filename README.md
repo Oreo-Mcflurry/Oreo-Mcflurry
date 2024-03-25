@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+Emial: yuiop1029@naver.com
+
 <!--
 **Oreo-Mcflurry/Oreo-Mcflurry** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
