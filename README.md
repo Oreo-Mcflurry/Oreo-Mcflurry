@@ -11,3 +11,8 @@
 
 ### Musk의 발표영상 (클릭 시 Youtube로 이동합니다)
 [![Video Label](http://img.youtube.com/vi/WUtCuHOYjwA/0.jpg)](https://youtu.be/WUtCuHOYjwA)
+
+
+## Contact Me!
+- Email: yuiop1029@naver.com
+- LinkedIn: https://zrr.kr/3li3
